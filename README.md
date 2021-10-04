@@ -1,2 +1,2 @@
-# https-www.shraddhanarola.com-
+#www.shraddhanarola.com-
 My portfolio
